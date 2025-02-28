@@ -7,9 +7,9 @@
   Add your open source license, GitHub uses MIT license.
 -->
 
-# GitHub Pages
+# Góp nhặt cát đá
 
-_Create a site or blog from your GitHub repositories with GitHub Pages._
+_Tập hợp các bài viết trong nhóm Phan Bội Châu 86_
 
 </header>
 
