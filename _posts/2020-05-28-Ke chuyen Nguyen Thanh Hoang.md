@@ -23,6 +23,9 @@ Một buổi chiều thứ Bảy, Tường đã về Cam An, BD ngồi giặt đ
 
 BD có ông cậu tên Đa, ổng cũng thích nghịch ngợm, thậm chí còn tự in nghề nghiệp “Ở Không” trên danh thiếp. Ổng chơi với hầu hết đám bạn của BD luôn. Bữa đó ổng thấy BD cứ nói mát hết, mát hết nên ổng cố tình chơi BD một cú nhớ tới già. Bởi vậy bây giờ già già rồi mới có chuyện kể nè. Cậu Đa biểu hai thằng bây lên đây tao chở, Hoàng đui lên ngồi sườn ngang, BD leo lên yên sau. Xe đạp chạy bon bon thấy gió lùa mát cả toàn thân. Tới gần ngã ba Đồng Lác, xe quẹo vô nhà có cửa sắt màu xanh gần nhà Lễ bu. BD hết hồn, hình như đây là nhà Nguyettran Ly. Cậu Đa biểu, hai đứa vô đây khiêng giùm cậu cái khung mây. Thôi, lỡ phóng lao mát hết rồi thì phải theo lao thôi, chớ bây giờ mà tè (sợ) thì ổng chọc quê chắc chết. BD vừa bước vô vừa cầu khẩn mười phương chư Phật, Thiên Chúa ba ngôi sao cho bé Tỷ không có nhà, hoặc có nhà nhưng không ở phòng khách, chớ xuất hiện trước người đẹp trong trang phục tà lỏn ống loe như vầy thì quá công xúc tu sỉ.
 
+![Da](https://github.com/user-attachments/assets/36055d36-cab9-41cc-9bbb-722a024c6da6)
+
+
 Dù phải theo lao nhưng vẫn tim đập chân run, lấm lét bước vô nhà đưa mắt nhìn quanh; chắc là Trời, Phật, Chúa, Ala đã thấu lời nguyện cầu của BD nên không thấy bé Tỷ đâu hết, BD mới thở cái phào. Nhưng sự đời không đơn giản, cái khung mây nó không nằm ở dưới đất mà nó nằm trên gác. Tới khi Hoàng đui với BD đã leo lên gác rồi, nhìn xuống mới nhớ mình đang mặc trang phục tà lỏn ống loe, đi xuống cầu thang kiểu này thật là hở hang. Không biết leo lên lưng cọp rồi xuống khó cỡ nào chớ BD leo lên gác nhà Nguyettran Ly rồi khó xuống quá.
 
 Khó quá thì cho Hoàng đui đi trước, BD đi sau, hai thằng khệ nệ khiêng cái khung gỗ để đan mây xuống cầu thang. Vì biết mình ăn bận hở hang nên BD đi khép nép như mấy cô người mẫu đi trình diễn thời trang trên sàn catwalk. 
