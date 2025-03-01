@@ -14,6 +14,8 @@ Hôm nay, 28 Feb 2025, miềng vô group *Phan Bội Châu* tìm bài viết v�
 
 Thôi thì miềng làm cái blog này để lưu lại mấy bài viết ngày xưa, lâu lâu đem ra đọc lại cho vui.
 
+This sentence uses `$` delimiters to show math inline: $\sqrt{3x-1}+(1+x)^2$
+
 ### :keyboard: Activity: Configure your site
 
 1. Browse to the `_config.yml` file in the `my-pages` branch.
