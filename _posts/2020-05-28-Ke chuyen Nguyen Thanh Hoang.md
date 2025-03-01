@@ -4,6 +4,14 @@ date: 2020-05-28
 ---
 Số BD long đong từ nhỏ, ra đời ở xứ Quảng Ngãi, học mẫu giáo ở Đà Nẵng, nửa năm lớp Một thì bị tịch biên gia sản, cả nhà dắt díu nhau về Huế, tới hết lớp Ba lại di cư vô Cam Ranh. Ở miền Trung mỗi tỉnh người ta nói một giọng, từ địa phương rất nhiều. Về Huế mới biết cái cươi là cái sân, cái trốt là cái đầu vv... Ngoài ra người Huế còn xài nhiều từ tiếng Pháp, ví dụ đội đầu khi đá banh thì kêu bằng tét (tête), phạt góc thì kêu cọc ne (corner), hộp quẹt thì kêu bric kê (briquet). Tới khi về tới Cam Ranh, lại có cơ hội học thêm nhiều từ mới. BD học lớp Bốn với Bùi Trương Hỷ, biệt danh là Hỷ mũi, bữa đầu nó rủ chơi ca rô, BD ngẩn tò te. Trò này ở ngoài Huế kêu bằng cờ roa dê rô (croix zéro) nhưng kêu là ca rô cũng có lý vì Hỷ mũi nói trò này chơi trên giấy ca rô, ngoài ra Hỷ nói ca rô là tiếng Việt dễ hiểu hơn nhưng thiệt ra BD biết ca rô cũng là tiếng Pháp (carreau).
 
+Hồi BD ở ngoài Huế mới vô Cam Ranh, lạ nước lạ cái có nhiều chuyện nghĩ lại vẫn tức cười.
+
+Thời đó đa số mọi người ai cũng đói khổ. Nhiều người lên núi cư xá khai hoang trồng khoai mì. Cũng vì cây rừng bị chặt mà mùa mưa hay có lũ về, nước lũ ngập cả cư xá, trôi cả đường, cuốn theo cát phủ một lớp dày ngoài đường, trong nhà, trong lớp học nên học trò được nghỉ học.
+
+Lụt thì khổ rồi, nhưng đôi khi không nín cười được. Có lần BD nghe một nông dân mếu máo kể khổ như vầy: lụt to qué trời qué đất. Tui dét đèn bò của tui qua cống cư xé, trâu chết 5 con, ten gie bại sẻn rầu.
+
+BD không hiểu, vì sao đàn bò đi qua cống cư xá, mà trâu lại chết 5 con nên cứ thắc mắc. Tới hồi có người giải thích là “trôi chết” 5 con chớ không phải “trâu chết”, BD mới phì cười nên bị ổng chửi: thèng trời đánh, bò teo trâu chớt mà thèng đó còn cừ.
+
 Cuối năm lớp 6, Hỷ mũi với BD lên trường vào buổi tối, không nhớ để làm gì. Lúc về thì tối thui, hồi đó thường xuyên cúp điện mà. Tự nhiên thấy một thằng cùng lứa tuổi, trùm cái áo ba đờ suy (pardessus) rộng thùng thình dài chấm gót, cầm cái đèn pin của Mỹ đi tới.   
 
 ![denpile](https://github.com/user-attachments/assets/3ff70365-aa70-446d-b174-10f992910f97)
@@ -31,7 +39,6 @@ Một buổi chiều thứ Bảy, Tường đã về Cam An, BD ngồi giặt đ
 BD có ông cậu tên Đa, ổng cũng thích nghịch ngợm, thậm chí còn tự in nghề nghiệp “Ở Không” trên danh thiếp. Ổng chơi với hầu hết đám bạn của BD luôn. Bữa đó ổng thấy BD cứ nói mát hết, mát hết nên ổng cố tình chơi BD một cú nhớ tới già. Bởi vậy bây giờ già già rồi mới có chuyện kể nè. Cậu Đa biểu hai thằng bây lên đây tao chở, Hoàng đui lên ngồi sườn ngang, BD leo lên yên sau. Xe đạp chạy bon bon thấy gió lùa mát cả toàn thân. Tới gần ngã ba Đồng Lác, xe quẹo vô nhà có cửa sắt màu xanh gần nhà Lễ bu. BD hết hồn, hình như đây là nhà Nguyettran Ly. Cậu Đa biểu, hai đứa vô đây khiêng giùm cậu cái khung mây. Thôi, lỡ phóng lao mát hết rồi thì phải theo lao thôi, chớ bây giờ mà tè (sợ) thì ổng chọc quê chắc chết. BD vừa bước vô vừa cầu khẩn mười phương chư Phật, Thiên Chúa ba ngôi sao cho bé Tỷ không có nhà, hoặc có nhà nhưng không ở phòng khách, chớ xuất hiện trước người đẹp trong trang phục tà lỏn ống loe như vầy thì quá công xúc tu sỉ.
 
 ![Da](https://github.com/user-attachments/assets/36055d36-cab9-41cc-9bbb-722a024c6da6)
-
 
 Dù phải theo lao nhưng vẫn tim đập chân run, lấm lét bước vô nhà đưa mắt nhìn quanh; chắc là Trời, Phật, Chúa, Ala đã thấu lời nguyện cầu của BD nên không thấy bé Tỷ đâu hết, BD mới thở cái phào. Nhưng sự đời không đơn giản, cái khung mây nó không nằm ở dưới đất mà nó nằm trên gác. Tới khi Hoàng đui với BD đã leo lên gác rồi, nhìn xuống mới nhớ mình đang mặc trang phục tà lỏn ống loe, đi xuống cầu thang kiểu này thật là hở hang. Không biết leo lên lưng cọp rồi xuống khó cỡ nào chớ BD leo lên gác nhà Nguyettran Ly rồi khó xuống quá.
 
